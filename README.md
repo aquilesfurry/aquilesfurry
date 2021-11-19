@@ -1,0 +1,3 @@
+- 👋 Hi, I’m aquilesfurry
+- 👀 I’m interested in furry and fnf and others
+- 🌱 I’m currently learning coding 
